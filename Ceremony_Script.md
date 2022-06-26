@@ -43,7 +43,49 @@ _And I further thought: well if it works for Jaws and for wedding ceremonies, th
 _But maybe this is just the beginning of the story, and you are just reading the first couple of pages here. Just getting to know these characters David and Anja. And they are just getting to know each other, really. They have a whole lifetime ahead of them to get the rest of the story arc down. I hope it will be one full of twists and turns and surprises. And seriously: not all good ones. It's a better story if you have to overcome adversity, right? But putting aside some of the more experimental fiction in the world, mostly we want to see the characters we love overcome adversities and come out on top. And that's what I wish for you David and Anja... a really good story._
 
 
+## A few short readings
+1. Monika
+2. Becci
+3. Ted LOTR
 
+
+## I dos
+* Mark Says: _And now, let's get to some rising action. Are you both ready?_
+* _Do you, Anja, take David to be your husband?_
+* Anja: _I do_
+* _Do you David, take Anja to be your wife?_
+* David: _I do_
+
+
+## Exchange of rings + vows
+* Mark says: _As I'm sure you are all expecting, we'll move on to the vows as the plot cotinues to thicken. Do we have the rings?_
+* Anja places the ring on David's finger and says her vows/nice words.
+	* And then again in German
+* David places the ring on Anja's finger and says his vows/nice words.
+	* And then again in German
+	
+## Fisherman's knot
+* Mark says: _David and Anja have decided that a fitting symbol of their marriage will be an attempt to literally tie the knot. The knot they will be attempting is known as a 'fisherman's knot' which has the characteristic that the more you pull on the ends, the tighter it gets. A metaphor for marriage... get it?_
+* David and Anja hopefully don't make a fool of themselves tying a big knot.
+
+
+## The Smooch
+* David and Anja continue to hold the knot in their hands. 
+* Mark says: _And now the climax --- what you've all been anticipating: the smooches!_
+* David and Anja smooch.
+* Applause
+
+
+## The pronouncement and presentation
+* Music starts: love keeps lifting me higher
+* Mark says: _I get to say now that Anja and David, you are husband and wife!_
+* They kiss again or whatever.
+* Mark says: _And the denouement: It is my great pleasure to present to you the married couple of David and Anja!_
+
+## Recessional
+* music continues to play, louder.
+* 2nd, chiller song, ready for long run-out.
+* Pops takes the mic to guide people to the champagne toast.
 
 
 

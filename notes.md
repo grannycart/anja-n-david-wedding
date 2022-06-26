@@ -26,13 +26,12 @@ title: Anja & David Wedding General Notes
 	* Will ask Monika to read a Hermann Hesse poem or some other short and sweet German poem (Rilke maybe) 
 	* We were thinking of asking Becci to do a reading -- ask her for something she wants to do
 	* Poem from Lord of the Rings (Ted) 
-4. Vows: We were thinking about saying a short and sweet nice thing about each other, 
-	* both in English and in German.
-5. exchange of rings + I dos
-	* [ ] where are the rings?
+4. I dos
 	* Do you, Anja, take David to be your husband?
 	* Do you David, take Anja to be your wife?
-	* ("I do." ring goes on the finger -- remember according to The Princess Bride it's not official unless you say 'I do') 
+5. exchange of rings + Vows: We were thinking about saying a short and sweet nice thing about each other, 
+	* both in English and in German.
+	* [ ] who has the rings?
 6. Fisherman's knot:
 	* [ ] make sure to have rope (Brian Caruso); practice 
 	* keep holding the knot for the smooch
