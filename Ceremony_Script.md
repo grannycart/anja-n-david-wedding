@@ -11,11 +11,11 @@ title: Anja & David Wedding --- Ceremony Script
 * PA system functional
 
 ## Processional:
-* Cue music
-* Children of the bubbles
-* David & Anja walk in together, holding hands
-* Anja & David take their place of honor on the dais, facing each other.
-* Music fade-out
+1. Cue music
+2. Children of the bubbles
+3. David & Anja walk in together, holding hands
+4. Anja & David take their place of honor on the dais, facing each other.
+5. Music fade-out
 
 ## Remarks from Mark
 _Welcome! Thank you so much for coming._
@@ -52,42 +52,42 @@ _But another possibility is this is just the beginning of the story, and you are
 
 
 ## I dos
-* Mark Says: _And now, let's get to some rising action. Are you both ready?_
-* _Do you, Anja, take David to be your husband?_
-* Anja: _I do_
-* _Do you David, take Anja to be your wife?_
-* David: _I do_
+1. Mark Says: _And now, let's get to some rising action. Are you both ready?_
+2. _Do you, Anja, take David to be your husband?_
+	* Anja: _I do_
+3. _Do you David, take Anja to be your wife?_
+	* David: _I do_
 
 
 ## Exchange of rings + vows
-* Mark says: _As I'm sure you are all expecting, we'll move on to the vows as the plot continues to thicken. Do we have the rings?_
-* Anja places the ring on David's finger and says her vows/nice words.
+1. Mark says: _As I'm sure you are all expecting, we'll move on to the vows as the plot continues to thicken. Do we have the rings?_
+2. Anja places the ring on David's finger and says her vows/nice words.
 	* And then again in German
-* David places the ring on Anja's finger and says his vows/nice words.
+3. David places the ring on Anja's finger and says his vows/nice words.
 	* And then again in German
 	
 ## Fisherman's knot
-* Mark says: _David and Anja have decided that a fitting symbol of their marriage will be an attempt to literally tie the knot. The knot they will be attempting is known as a 'fisherman's knot' which has the characteristic that the more you pull on the ends, the tighter it gets. A metaphor for marriage... get it?_
-* David and Anja hopefully don't make a fool of themselves tying a big knot.
+1. Mark says: _David and Anja have decided that a fitting symbol of their marriage will be an attempt to literally tie the knot. The knot they will be attempting is known as a 'fisherman's knot' which has the characteristic that the more you pull on the ends, the tighter it gets. A metaphor for marriage... get it?_
+2. David and Anja hopefully don't make a fool of themselves tying a big knot.
 
 
 ## The Smooch
 * David and Anja continue to hold the knot in their hands. 
-* Mark says: _And now the climax --- what you've all been anticipating: the smooches!_
-* David and Anja smooch.
-* Applause
+1. Mark says: _And now the climax --- what you've all been anticipating: the smooches!_
+2. David and Anja smooch.
+3. Applause
 
 
 ## The pronouncement and presentation
-* Music starts: love keeps lifting me higher
-* Mark says: _I get to say now that Anja and David, you are husband and wife!_
-* They kiss again or whatever.
-* Mark says: _And the denouement: It is my great pleasure to present to you the married couple of David and Anja!_
+1. Music starts: love keeps lifting me higher
+2. Mark says: _I get to say now that Anja and David, you are husband and wife!_
+3. They kiss again or whatever.
+4. Mark says: _And the denouement: It is my great pleasure to present to you the married couple of David and Anja!_
 
 ## Recessional
-* music continues to play, louder.
-* 2nd, chiller, song ready for long run-out.
-* Pops takes the mic to guide people to the champagne toast.
+1. music continues to play, louder.
+2. 2nd, chiller, song ready for long run-out.
+3. Pops takes the mic to guide people to the champagne toast.
 
 
 
