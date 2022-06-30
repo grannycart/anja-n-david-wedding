@@ -1,5 +1,6 @@
 ---
 layout: home
+title: Anja & David Wedding Repo
 ---
 
 * *Todos are listed in private wiki*
