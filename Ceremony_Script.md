@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Anja & David Wedding: Ceremony Script
+title: Anja & David Wedding --- Ceremony Script
 ---
 
 
