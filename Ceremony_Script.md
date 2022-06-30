@@ -10,14 +10,14 @@ title: Anja & David Wedding --- Ceremony Script
 * DJ in place
 * PA system functional
 
-## Processional:
+## 1. Processional:
 1. Cue music
 2. Children of the bubbles
 3. David & Anja walk in together, holding hands
 4. Anja & David take their place of honor on the dais, facing each other.
 5. Music fade-out
 
-## Remarks from Mark
+## 2. Remarks from Mark
 _Welcome! Thank you so much for coming._
 
 _Turns out, it's kinda a big deal to be asked to officiate a wedding ceremony._
@@ -45,13 +45,13 @@ _And I further thought: well if it works for Jaws and for wedding ceremonies, th
 _But another possibility is this is just the beginning of the story, and you are just reading the first couple of pages here at this wedding. Just getting to know these characters David and Anja. And they are just getting to know each other, really. They have a whole lifetime ahead of them to get the rest of the story arc down. I hope it will be one full of twists and turns and surprises. And seriously: not all good ones. It's a better story if people have to overcome adversity, right? But putting aside some of the more experimental fiction in the world, mostly we want to see the characters we love to successfully clear the plot twists and obstacles and come out on top. And that's what I wish for you David and Anja... a really good story._
 
 
-## A few short readings
+## 3. A few short readings
 1. Monika
 2. Becci
 3. Ted LOTR
 
 
-## I dos
+## 4. I dos
 1. Mark Says: _And now, let's get to some rising action. Are you both ready?_
 2. _Do you, Anja, take David to be your husband?_
 	* Anja: _I do_
@@ -59,19 +59,19 @@ _But another possibility is this is just the beginning of the story, and you are
 	* David: _I do_
 
 
-## Exchange of rings + vows
+## 5. Exchange of rings + vows
 1. Mark says: _As I'm sure you are all expecting, we'll move on to the vows as the plot continues to thicken. Do we have the rings?_
 2. Anja places the ring on David's finger and says her vows/nice words.
 	* And then again in German
 3. David places the ring on Anja's finger and says his vows/nice words.
 	* And then again in German
 	
-## Fisherman's knot
+## 6. Fisherman's knot
 1. Mark says: _David and Anja have decided that a fitting symbol of their marriage will be an attempt to literally tie the knot. The knot they will be attempting is known as a 'fisherman's knot' which has the characteristic that the more you pull on the ends, the tighter it gets. A metaphor for marriage... get it?_
 2. David and Anja hopefully don't make a fool of themselves tying a big knot.
 
 
-## The Smooch
+## 7. The Smooch
 * David and Anja continue to hold the knot in their hands. 
 1. Mark says: _And now the climax --- what you've all been anticipating: the smooches!_
 2. David and Anja smooch.
@@ -86,8 +86,9 @@ _But another possibility is this is just the beginning of the story, and you are
 
 ## Recessional
 1. music continues to play, louder.
-2. 2nd, chiller, song ready for long run-out.
-3. Pops takes the mic to guide people to the champagne toast.
+2. David and Anja walk out together (what does everyone else do?)
+3. 2nd, chiller, song ready for long run-out.
+4. Pops takes the mic to guide people to the champagne toast.
 
 
 
