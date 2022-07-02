@@ -45,6 +45,7 @@ title: Anja & David Wedding General Notes
 	* music continues to rise and get louder
 9. recessional during song:
 	* [ ] Prep second song for long run-out
+	* [ ] what are people doing after david and anja walk out? milling around? following? who is ushing?
 
 * Then champaign toast:
 	* [ ] who is giving toast
