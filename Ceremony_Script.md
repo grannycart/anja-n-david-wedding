@@ -40,11 +40,11 @@ _But then, Jaws is a movie that is almost 50 years old now. I have no memory of 
 
 _So this is something we do in our family: we watch the movies we like over and over again. So like, even though we know every line in "Star Trek II: Wrath of Khan" every camera angle, every reaction shot --- we'll still want to watch it at least once a year. And I realized: well, that's an indicator of a really good story too --- even when you've seen a story so many times that there's no mystery or curiosity left, there's a pleasure in the anticipation of the familiar, isn't there? You enjoy it BECAUSE you know what's coming rather than because you don't know what's coming. You look for your favorite parts, and you feel satisfaction to find out it's just as good as the last time you saw it. Maybe, in some way, better, because now you know that your favorite movie wasn't just some passing fancy --- not just the latest special effects or topical jokes --- your favorite movie is one that has stood the test of time._
 
-_And I thought: well if it works for Jaws, maybe that's how a wedding works too: we all get the satisfaction of a familiar story told over again. We know what the good parts are and that they are inevitably coming to us. We're all sitting here in anticipation that nothing unexpected will happen. And I don't think there are going to be any surprises today --- though if there are, then I encourage you to enjoy the plot twist!_
+_And I thought: well if it works for Jaws, maybe that's how a wedding works too: we all get the satisfaction of a familiar story told over again. We know what the good parts are and that they are inevitably coming to us. We're all sitting here in anticipation that nothing unexpected will happen. And I don't think there are going to be any surprises today --- though if there are, then I encourage you to enjoy the unexpected plot twist!_
 
 _And --- forgive me for this --- maybe we can push this metaphor even further. Maybe it's more than just the wedding ceremony; maybe a lot of the best marriages are founded on that kind of anticipation of the familiar. If you are still finding anticipation, satisfaction, and reassurance in the same person after decades, what more could you ask from a relationship? So I hope you find that in your marriage Anja and David._ 
 
-But I can't leave it there. The story-teller part of me also hopes that your marriage is more like your experience when you read Lord of the Rings for the first time: a super-long, exciting, page-turner of epic proportions. Like maybe this is just the beginning of the story, and you are just reading the first couple of pages here at this wedding. Just getting to know these characters David and Anja. And they are just getting to know each other, really. Then there is a whole lifetime ahead of them to get the rest of the story arc down. I hope it will be one full of twists and turns and surprises. And seriously: not all good ones. It's a better story if people have to overcome adversity, right? But putting aside some of the more experimental fiction in the world, mostly we want to see the characters we love to successfully clear the plot twists and obstacles and come out on top._ 
+But I can't leave it there. The story-teller part of me also hopes that your marriage is more like your experience when you first read Lord of the Rings: a super-long, exciting, page-turner of epic proportions. Like maybe this is just the beginning of the story, and you are just reading the first couple of pages here at this wedding. You're just getting to know these characters David and Anja. And, really, they are just getting to know each other. Then there is a whole lifetime ahead of them to get the rest of the story arc down. I hope it will be one full of twists and turns and surprises. And seriously: not all good ones. If people have to overcome adversity, it makes for a better story, right? But putting aside some of the more experimental fiction in the world, mostly we want to see the characters we love successfully overcome the obstacles and navigate the plot twists and come out on top._ 
 
 _So that's what I wish for you David and Anja... a really good story with lots of excitement and surprises. And also a story that you keep coming back to and finding comfort in. That, I think, is kinda everything a marriage ever could be. I hope it's yours._
 
@@ -77,7 +77,7 @@ _So that's what I wish for you David and Anja... a really good story with lots o
 
 ## 7. The Smooch
 * David and Anja continue to hold the knot in their hands. 
-1. Mark says: _And now the climax --- what you've all been anticipating: the smooches!_
+1. Mark says: _And now the climax --- what you've all been anticipating: the smooches! Anja and David, you may smooch_
 2. David and Anja smooch.
 3. Applause
 
@@ -86,7 +86,7 @@ _So that's what I wish for you David and Anja... a really good story with lots o
 1. Music starts: love keeps lifting me higher
 2. Mark says: _I get to say now that Anja and David, you are husband and wife!_
 3. They kiss again or whatever.
-4. Mark says: _And the denouement: It is my great pleasure to present to you the married couple of David and Anja!_
+4. Mark says: _And the denouement: It is my great pleasure to present to you the married couple: David and Anja!_
 
 ## Recessional
 1. music continues to play, louder.
