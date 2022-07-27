@@ -20,11 +20,11 @@ title: Anja & David Wedding --- Ceremony Script
 ## 2. Remarks from Mark
 _Welcome! Thank you so much for being here._
 
-_Turns out, it's kinda a big deal to be asked to officiate a wedding ceremony._
+_Turns out, as you might guess, it's kinda a big deal to be asked to officiate a wedding ceremony._
 
 _After David asked me to do this, I really had no idea where to start. I began bringing it up with various people in my life to try to get a sense of what is required here. And that resulted in some better, and some worse, advice on what makes a good wedding. But maybe the best advice I got was from Aunt Linda who passed on advice she received about her own wedding, which was that you need to remember that this is a kind of a show: this is the Anja and David show --- And it needs to be planned and executed like a show, with a narrative arc, rising action, and of course a climax._
 
-_This appealed to me because if we think of the wedding as a show, it puts the focus on the audience. A show is FOR the audience after all, in this case, that is you. The whole point of this wedding venture, I think, is to do it in front of people who matter to David and Anja. That means YOU have all the power here. Most especially Grandma. YOU are the witnesses who affirm the marriage. And take the significance of the ceremony with you. And there's really no power vested in me as an individual even though I'm standing up here; the power of this thing is really vested in YOU, the audience._
+_This idea appealed to me because if we think of the wedding as a show, it puts the focus on the audience. A show is FOR the audience after all, in this case, that is you. The whole point of this wedding venture, I think, is to do it in front of people who matter to David and Anja. That means YOU have all the power here. Most especially Grandma. YOU are the witnesses who affirm the marriage. And take the significance of the ceremony with you. And there's really no power vested in me as an individual even though I'm standing up here; the power of this thing is really vested in YOU, the audience._
 
 _Conveniently, this really lets me off the hook for what at first seemed like a tremendously grave responsibility._
 
@@ -32,7 +32,7 @@ _Not entirely, of course. If it's a show we're putting on, then I'm still stuck 
 
 _Well, you might begin to see the problem here: at a wedding, the ending is already given away. We all KNOW what's going to happen!  There's no plot twists here, no jump scares, no surprises. Hopefully._
 
-_And then I thought: maybe that's what a good wedding needs: more mystery, more tension, more clues --- something like that part of the movie Jaws where the camera is half in the water, and sneaking slowly up on a swimmer, and the music is really slow (duh nun, duh nuh) because the tension is only just starting to build... who could ever turn away at a moment like that -- you just GOTTA find out what's going to happen. Wouldn't it be awesome to be at a wedding that had that  same power to give you the sense that something dramatic is going to happen?_
+_And then I thought: maybe that's what a good wedding needs: more mystery, more tension, more clues --- something like that part of the movie Jaws where the camera is half in the water, and sneaking slowly up on a swimmer, and the music is really slow (duh nun, duh nuh) because the tension is only just starting to build... who could ever turn away at a moment like that -- you just GOTTA find out what's going to happen. Wouldn't it be awesome to be at a wedding that had that same power to give you the sense that something dramatic is going to happen?_
 
 _So that made me wonder: how can I make this wedding be more like Jaws?_
 
@@ -42,11 +42,11 @@ _This is something we do in our family: we watch the movies we like over and ove
 
 _And I thought: well if it works for Jaws, maybe that's how a wedding works too: we all get the satisfaction of a familiar story told over again. We know what the good parts are and that they are inevitably coming to us. We're all sitting here in anticipation... anticipation that absolutely nothing unexpected will happen. And I don't think there are going to be any surprises today --- though if there are, then rather than blaming me, I just encourage you to enjoy the unexpected plot twist!_
 
-_But maybe we can push this metaphor even further --- forgive me for this if it's going too far. But maybe this idea applies to more than just the wedding ceremony; maybe a lot of the best marriages are founded on that kind of anticipation of the familiar. After all, if you are still finding anticipation, satisfaction, and reassurance in the same person after decades, what more could you ask from a relationship? So I hope you find that in your marriage Anja and David._ 
+_But maybe we can push this idea even further --- though forgive me this if it's going too far. Maybe this idea applies to more than just the wedding ceremony; maybe a lot of the best marriages are founded on that kind of anticipation of the familiar. After all, if you are still finding anticipation, satisfaction, and reassurance in the same person after decades, what more could you ask from a relationship? So I hope you find that in your marriage Anja and David._ 
 
 But I can't leave it at that. The story-teller part of me also hopes that your marriage is more like your experience when you first read Lord of the Rings: a super-long, exciting, page-turner of epic proportions. Like maybe this is just the beginning of the story, and you are just reading the first couple of pages here at this wedding. You're just getting to know these characters David and Anja. And, really, they are just getting to know each other. Then there is a whole lifetime ahead of them to get the rest of the story arc down. I hope it will be one full of twists and turns and surprises. And seriously: not all good ones. If people have to overcome adversity, it makes for a better story, right? Though I still hope you never have to deal with a giant shark. But putting aside some of the more experimental fiction in the world, mostly we want to see the characters we love successfully overcome the obstacles and navigate the plot twists and come out on top._ 
 
-_So that's what I wish for you David and Anja... a really good story with lots of excitement and surprises. And also a story that you keep coming back to and finding comfort in. That, I think, is kinda everything a marriage ever could be. I hope it's yours._
+_So that's what I wish for you David and Anja... both a really good story with lots of excitement and surprises. And also a story that you keep coming back to and finding comfort in. That, I think, is kinda everything a marriage ever could be. I hope it's yours._
 
 
 ## 3. A few short readings
