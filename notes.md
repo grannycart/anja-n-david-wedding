@@ -6,9 +6,9 @@ title: Anja & David Wedding General Notes
 
 
 ## Things to make sure get taken care of:
-* [ ] have remarks fully written out by end of June (D&A will have vows done by then too)
+* [X] have remarks fully written out by end of June (D&A will have vows done by then too)
 * [ ] Who is ushering people to sit down: delegation
-* [ ] PA system?
+* [X] PA system?
 	* no power
 	* experimenting with Dad's power rig
 
