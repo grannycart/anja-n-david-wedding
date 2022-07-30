@@ -3,24 +3,30 @@ layout: page
 title: Anja & David Wedding --- Ceremony Script
 ---
 
-
+2022-07-30 12:00pm
 
 ## Setting
 * On the dais: Mark, parents, aunts, others?
-* DJ in place
+* DJ Moss in place
 * PA system functional
 
 ## 1. Processional:
 1. Cue music
-2. Children of the bubbles
-3. David & Anja walk in together, holding hands
-4. Anja & David take their place of honor on the dais, facing each other.
-5. Music fade-out
+2. parents and relatives
+3. Readers
+4. Children of the bubbles
+5. David & Anja walk in together, holding hands
+6. Anja & David take their place of honor on the dais, facing each other.
+7. Music fade-out
 
 ## 2. Remarks from Mark
 **Welcome! Thank you so much for being here.**
 
-**Turns out, as you might guess, it's kinda a big deal to be asked to officiate a wedding ceremony.**
+**I think we'll take a page from the book of Father Bruce and take a beat to appreciate this setting, this day, and everyone being here. So I'm going to pause and not talk for a small bit here.**
+
+[~30 count of silence]
+
+**Turns out, as you might guess, it's kinda a big deal to be asked to officiate a wedding ceremony. An I'm truly honored and flattered to be doing this.**
 
 **After David asked me to do this, I really had no idea where to start. I began bringing it up with various people in my life to try to get a sense of what is required here. And that resulted in some better, and some worse, advice on what makes a good wedding. But maybe the best advice I got was from Aunt Linda who passed on advice she received about her own wedding, which was that you need to remember that this is a kind of a show: this is the Anja and David show --- And it needs to be planned and executed like a show, with a narrative arc, rising action, and of course a climax.**
 
@@ -44,7 +50,7 @@ title: Anja & David Wedding --- Ceremony Script
 
 **And I thought: well if it works for Jaws, maybe that's how a wedding works too: we all get the satisfaction of a familiar story told over again. We know what the good parts are and that they are inevitably coming to us. We're all sitting here in anticipation... anticipation that absolutely nothing unexpected will happen. And I don't think there are going to be any surprises today --- though if there are, then rather than blaming me, I just encourage you to enjoy the unexpected plot twist!**
 
-**But maybe we can push this idea even further --- though forgive me this if it's going too far. Maybe this idea applies to more than just the wedding ceremony; maybe a lot of the best marriages are founded on that kind of anticipation of the familiar. After all, if you are still finding anticipation, satisfaction, and reassurance in the same person after decades, what more could you ask from a relationship? So I hope you find that in your marriage Anja and David.** 
+**But maybe we can push this idea even further. Maybe this idea applies to more than just the wedding ceremony; maybe a lot of the best marriages are founded on that kind of anticipation of the familiar. After all, if you are still finding anticipation, satisfaction, and reassurance in the same person after decades, what more could you ask from a relationship? So I hope you find that in your marriage Anja and David.** 
 
 **But I can't leave it at that. The story-teller part of me also hopes that your marriage is more like your experience when you first read Lord of the Rings: a super-long, exciting, page-turner of epic proportions. Like maybe this is just the beginning of the story, and you are just reading the first couple of pages here at this wedding. You're just getting to know these characters David and Anja. And, really, they are just getting to know each other. Then there is a whole lifetime ahead of them to get the rest of the story arc down. I hope it will be one full of twists and turns and surprises. And seriously: not all good ones. If characters have to overcome adversity, it makes for a better story, right? Though I still hope you never have to deal with a giant shark. But putting aside some of the more experimental fiction in the world, mostly we want to see the characters we love successfully overcome the obstacles and navigate the plot twists and come out on top.** 
 
@@ -52,9 +58,10 @@ title: Anja & David Wedding --- Ceremony Script
 
 
 ## 3. A few short readings
+Mark Say: **And now a few short readings.**
 1. Monika
-2. Becci
 3. Ted LOTR
+2. Becci
 
 
 ## 4. I dos
@@ -80,15 +87,15 @@ title: Anja & David Wedding --- Ceremony Script
 ## 7. The Smooch
 * David and Anja continue to hold the knot in their hands. 
 1. Mark says: **And now the climax --- what you've all been anticipating: the smooches! Anja and David, you may smooch**
-2. David and Anja smooch.
-3. Applause
+2. Music starts: love keeps lifting me higher
+3. David and Anja smooch.
+4. Applause
 
 
 ## The pronouncement and presentation
-1. Music starts: love keeps lifting me higher
-2. Mark says: **I get to say now that Anja and David, you are husband and wife!**
-3. They kiss again or whatever.
-4. Mark says: **And the denouement: It is my great pleasure to present to you the married couple: David and Anja!**
+1. Mark says: **I get to say now that Anja and David, you are husband and wife!**
+2. They kiss again or whatever.
+3. Mark says: **And the denouement: It is my great pleasure to present to you the married couple: David and Anja!**
 
 ## Recessional
 1. music continues to play, louder.
